@@ -1,2 +1,2 @@
 
-  Olá, meu nome é Nicolly.
+  Olá, eu sou a Nicolly.
